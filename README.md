@@ -1,1 +1,0 @@
-# alankim0120.github.io
